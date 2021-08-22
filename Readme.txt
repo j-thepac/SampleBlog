@@ -1,0 +1,1 @@
+<a href="https://ibb.co/R3YW7D2"><img src="https://i.ibb.co/rxFJvwk/GQ-Air-Jordan35-092420-2.jpg" alt="GQ-Air-Jordan35-092420-2" border="0"></a>
